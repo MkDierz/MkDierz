@@ -72,3 +72,4 @@ Full Stack Engineer with experience building scalable backend services, event-dr
 ## Career Intentions
 
 Seeking **Backend**, **Full Stack**, **DevOps**, or **AI Engineering** roles. Available for remote positions globally or on-site roles in Indonesia starting **January 2027**.
+![](https://hit.yhype.me/github/profile?account_id=41385567)
